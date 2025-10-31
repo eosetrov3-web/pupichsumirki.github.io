@@ -1,1 +1,0 @@
-# pupichsumirki.github.io
